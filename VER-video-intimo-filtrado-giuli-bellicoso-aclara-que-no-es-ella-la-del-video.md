@@ -1,13 +1,12 @@
 Giuli Bellicoso aclara que no es ella la del video íntimo filtrado
 
-Giuli Bellicoso desmiente la filtración de un video íntimo y aclara que no es ella la protagonista. Conoce su respuesta aquí.
 
-Imagen de Giuli Bellicoso aclara que no es ella la del video íntimo filtrado
-Ante el revuelo de un video filtrado, Giuli Bellicoso rompió el silencio. - Foto: Cortesía.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-En un contexto marcado por la rápida difusión de información en las redes sociales, la joven influencer Giuli Bellicoso ha decidido aclarar los recientes rumores en torno a un supuesto video filtrado en diversas plataformas.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-A través de un mensaje publicado en las historias de su cuenta de Instagram, Giuli se dirigió a sus seguidores para desmentir la autenticidad del video que ha causado revuelo en la comunidad digital.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 Comunicado de Giuli Bellicoso
 "Buenas, lamento desilusionarlos pero no soy yo la del video," afirmó la joven, reafirmando su postura sobre la situación. Además, enfatizó su condición de menor de edad, un aspecto que considera crucial en este tipo de controversias.
